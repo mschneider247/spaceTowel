@@ -1,4 +1,5 @@
 # Hello! I'm Michael Schneider
+![profile pic](https://github.com/mschneider247/Clayton_Graphs/assets/21366524/0dfe670c-5bff-4597-b337-f5891f403802)
 ### Call me Mike.
 
 ... a curious soul inspired by Europe's castles and forests. I embraced storytelling through Dungeons and Dragons and experimented with paper flight contraptions, 
