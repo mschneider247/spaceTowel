@@ -9,7 +9,7 @@ from Computer Engineering to Ballet. The American Dance Festival honed my artist
 of exploration and creativity. Join me on this adventure of life!
 
 <ul>
-<li>My new book!! [Following October](https://a.co/d/2nFF1RV)
+<li> [My new book!!: Following October](https://a.co/d/2nFF1RV) </li>
 <li>Children's Book, Elvis the Selfish Shellfish
 <li>Instagram, 
 <li>LinkedIn,
