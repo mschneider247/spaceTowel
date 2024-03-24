@@ -8,7 +8,7 @@ fostering a love for iterative testing. Influenced by Leonardo, Brunelleschi, an
 from Computer Engineering to Ballet. The American Dance Festival honed my artistic talents. Now, as a software engineer, author, and artist, I continue my journey 
 of exploration and creativity. Join me on this adventure of life!
 
-[Following October](https://a.co/d/2nFF1RV)
+My new book!! [Following October](https://a.co/d/2nFF1RV)
 <li>Children's Book, Elvis the Selfish Shellfish
 <li>Instagram, 
 <li>LinkedIn,
