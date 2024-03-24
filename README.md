@@ -12,7 +12,7 @@ My new book!! [Following October](https://a.co/d/2nFF1RV) <br>
 [Elvis the Selfish Shellfish](https://a.co/d/9Snlab5) <br>
 [Instagram](https://www.instagram.com/mschneider247/) <br>
 [LinkedIn](https://www.linkedin.com/in/mschneider247/) <br>
-<li>Github,
+[Github](https://github.com/mschneider247/) <br>
 <li>Maker World,
 <li>Patreon,
 <li>DubiousDerby
