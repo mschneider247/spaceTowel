@@ -9,8 +9,8 @@ from Computer Engineering to Ballet. The American Dance Festival honed my artist
 of exploration and creativity. Join me on this adventure of life!
 
 My new book!! [Following October](https://a.co/d/2nFF1RV) <br>
-[Elvis the Selfish Shellfish](https://a.co/d/9Snlab5)
-<li>Instagram, 
+[Elvis the Selfish Shellfish](https://a.co/d/9Snlab5) <br>
+[Instagram](https://www.instagram.com/mschneider247/) <br>
 <li>LinkedIn,
 <li>Github,
 <li>Maker World,
