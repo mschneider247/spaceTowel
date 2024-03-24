@@ -13,8 +13,8 @@ My new book!! [Following October](https://a.co/d/2nFF1RV) <br>
 [Instagram](https://www.instagram.com/mschneider247/) <br>
 [LinkedIn](https://www.linkedin.com/in/mschneider247/) <br>
 [Github](https://github.com/mschneider247/) <br>
-<li>Maker World,
-<li>Patreon,
-<li>DubiousDerby
-<li>mike@spacetowel.com
+[Maker World](https://makerworld.com/en/@spacetowel) <br>
+[Patreon](patreon.com/user?u=3027707)
+[Dubious Derby](dubiousderby.com)
+[email](mike@spacetowel.com)
 
