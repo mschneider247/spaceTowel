@@ -19,6 +19,5 @@ And my first book! [Elvis the Selfish Shellfish](https://a.co/d/9Snlab5) <br>
 [Github](https://github.com/mschneider247/) <br>
 [Maker World](https://makerworld.com/en/@spacetowel) <br>
 [Patreon](patreon.com/user?u=3027707) <br>
-
 [email](mike@spacetowel.com) <br>
 
