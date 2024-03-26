@@ -13,7 +13,6 @@ And my first book! [Elvis the Selfish Shellfish](https://a.co/d/9Snlab5) <br>
  Website game coming soon [Dubious Derby](dubiousderby.com) <br>
 
  Find me on
- 
 [Instagram](https://www.instagram.com/mschneider247/) <br>
 [LinkedIn](https://www.linkedin.com/in/mschneider247/) <br>
 [Github](https://github.com/mschneider247/) <br>
