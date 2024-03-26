@@ -10,11 +10,14 @@ of exploration and creativity. Join me on this adventure of life!
 
 My new book!! [Following October](https://a.co/d/2nFF1RV) <br>
 And my first book! [Elvis the Selfish Shellfish](https://a.co/d/9Snlab5) <br>
+ Website game coming soon [Dubious Derby](dubiousderby.com) <br>
+
+ Follow me on
 [Instagram](https://www.instagram.com/mschneider247/) <br>
 [LinkedIn](https://www.linkedin.com/in/mschneider247/) <br>
 [Github](https://github.com/mschneider247/) <br>
 [Maker World](https://makerworld.com/en/@spacetowel) <br>
 [Patreon](patreon.com/user?u=3027707) <br>
-[Dubious Derby](dubiousderby.com) <br>
+
 [email](mike@spacetowel.com) <br>
 
